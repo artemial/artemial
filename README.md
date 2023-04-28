@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @artemial
+- 👀 I’m interested in blockchain and all this kind of stuff
+- 📫 How to reach me ......
